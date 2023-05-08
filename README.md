@@ -10,6 +10,6 @@ médio: UaDZ85 w<9$Tn
 
 ![image](https://user-images.githubusercontent.com/118542381/236821694-764ec7e8-c12d-4caf-be57-cbd6383e4700.png)
 
-muitos: lSVrc|W.5!(n+JI[# Z6%1}UF)
+muitos: lSVrc|W.5!(n+JI[# Z6%1}UF)T
 
 ![image](https://user-images.githubusercontent.com/118542381/236821640-b382c6db-fba5-4223-a724-bd749132331e.png)
